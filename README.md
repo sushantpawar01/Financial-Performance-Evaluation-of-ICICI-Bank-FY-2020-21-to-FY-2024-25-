@@ -4,7 +4,7 @@
 > 
 > **By:** Sushant (2022IMG-062)  
 > **Under the Supervision of:** Dr. Gaurav Agrawal  
-> **Department of Management Studies** > **ABV-Indian Institute of Information Technology and Management Gwalior** (2025)  
+> **Department of Management Studies** > **Indian Institute of Information Technology and Management Gwalior** (2025)  
 
 ---
 
